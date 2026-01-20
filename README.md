@@ -4,7 +4,7 @@
 
 ![Zdjęcie puszki 500ml](https://www.moremuscle.de/108798-cart_default/monster-energy-zero.jpg)
 
-Całkiem dobry smak pomimo bardzo delikatnego gorzkiego posmaku. Nie wiem, jak go bardziej dokładnie opisać.
+Całkiem dobry smak pomimo bardzo delikatnego gorzkiego posmaku. Nie wiem, jak go bardziej dokładnie opisać - bardziej zauważalny od tej prawie niedostrzegalnej nuty goryczy jest jedynie lekko słony smak.
 
 ## Nitro Cosmic Peach
 
