@@ -3,7 +3,7 @@
 ## Energy
 
 [![Zdjęcie puszki 500ml](https://foodstruct.com/img/foods/14022.webp)](https://www.bargainbooze.co.uk/wp-content/uploads/2025/11/monster-energy-500ml.png)  
-[ℹ️](data:text/plain;charset=utf-8,Legenda:%0A☆☆☆☆☆%20-%20Możliwość%20wywołania%20wymiotów%0A★☆☆☆☆%20-%20Bardzo%20zły%20smak%0A★★☆☆☆%20-%20Smak%20którego%20nie%20lubię,%20ale%20uważam%20że%20ktoś%20inny%20może%0A★★★☆☆%20-%20Smak%20jako%20taki,%20może%20kupię%20jeszcze%20raz%20jak%20nie%20będzie%20lepszych%20opcji%0A★★★★☆%20-%20Dobry%20smak,%20polecam%0A★★★★★%20-%20Wspaniałe%20walory%20smakowe;%20osobista%20degustacja%20mocno%20wskazana)  `★★★★★`
+`⚖️ ★★★★★`
 
 Całkiem dobry smak pomimo bardzo delikatnego gorzkiego posmaku. Nie wiem, jak go bardziej dokładnie opisać - bardziej zauważalny od tej prawie niedostrzegalnej nuty goryczy jest jedynie lekko słony smak.
 
