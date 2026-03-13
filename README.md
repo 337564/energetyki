@@ -12,7 +12,7 @@ Całkiem dobry smak pomimo bardzo delikatnego gorzkiego posmaku. Nie wiem, jak g
 [![Zdjęcie puszki 500ml](https://www.britishhypermarket.com/cdn/shop/files/NM.jpg)](https://kirpa.nl/wp-content/uploads/2024/09/Monster-Energy-Nitro-Cosmic-Peach-500ml.webp)  
 `★★★★★`
 
-Brzoskwiniowy, bardzo dobry. Tak jak inne napoje z serii *Nitro*, nagazowanie azotem nadaje mu niezwykle przyjemną, gładką teksturę i zupełny brak możliwości niemiłego odbicia się nosem.
+Brzoskwiniowy, bardzo dobry. Tak jak inne napoje z serii *Nitro*, nagazowanie azotem nadaje mu niezwykle przyjemną, gładką teksturę i zupełny brak możliwości niemiłego odbicia się nosem. Zdecydowanie polecam.
 
 ## Nitro
 
@@ -48,6 +48,13 @@ Trochę gorzka, bardziej "prawdziwa" (?) lemoniada. Smak nie dla mnie.
 `★★★★★`
 
 Kwaśno-słodkie mango, z nutą innych owoców tropikalnych. Dobry.
+
+## Juiced Monarch
+
+[![Zdjęcie puszki 500ml](https://rimibaltic-res.cloudinary.com/image/upload/b_white,c_limit,dpr_auto,f_auto,q_auto:low,w_128/d_ecommerce:backend-fallback.png/MAT_1370604_PCE_LT)](https://rimibaltic-res.cloudinary.com/image/upload/d_ecommerce:backend-fallback.png/MAT_1370604_PCE_LT)  
+`⚖️ ★★★★★`
+
+Bardziej słodki niż kwaśny, o smaku soku z brzoskwini, jabłka i gruszki, z nutą trudnych do rozpoznania owoców tropikalnych w tle (według składu ananas, nektarynka, mango i banan). Smaczny, zwłaszcza z dobrą zagrychą; polecam.
 
 ## Rio Punch
 
