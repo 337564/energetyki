@@ -42,6 +42,13 @@ Wiśnia (i jabłko?), dobry. Bardzo delikatnie słony (?). Nieco bardziej wytraw
 
 Trochę gorzka, bardziej "prawdziwa" (?) lemoniada. Smak nie dla mnie.
 
+## Juiced Bad Apple
+
+[![Zdjęcie puszki 500ml](https://www.americancandystore.com.au/cdn/shop/files/MonsterJuicedEnergy_JuiceBadApple500Ml.jpg?width=128)](https://ccasianmarket.nl/wp-content/uploads/monster-energy-juiced-bad-apple-500ml.jpeg)  
+`★★★★☆`
+
+Kwaśne jabłko. Bardzo prosty smak - sam w sobie przyjemny aczkolwiek średnio ciekawy, ale dodaje walorów smakowych kanapce.
+
 ## Juiced Mango Loco
 
 [![Zdjęcie puszki 500ml](https://images-eu.ssl-images-amazon.com/images/I/61bRengGQFL._AC_UL128_SR128,128_.jpg)](https://images-eu.ssl-images-amazon.com/images/I/61bRengGQFL.jpg)  
